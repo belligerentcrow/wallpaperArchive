@@ -1,2 +1,0 @@
-# wallpaperArchive
- my wallpapers
